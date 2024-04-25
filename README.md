@@ -1,1 +1,38 @@
-# missing-extras
+-     First Cut: Samurai Duel Soundtrack
+-     To Be A King Volume 2 - Official Guide
+-     I Was a Teenage Exocolonist Soundtrack and Artbook
+-     The Symbiant Re:Union - PG-13 Artbook & CG Pack
+-     Slay the Princess - Supporters Pack
+-     Tin Hearts Double A-Side
+-     Tin Hearts Soundtrack
+-     The Sinking City Artbook & OST
+-     Between Horizons Soundtrack
+-     Outcast - A New Beginning Soundtrack
+-     Frontier Hunter: Soundtrack
+-     Craftomation 101 Art Pack
+-     Craftomation 101 Soundtrack
+-     VIDEOVERSE Original Soundtrack
+-     Soundtrack for Secrets of Grindea
+-     Roboplant Soundtrack
+-     Brothers: A Tale of Two Sons Remake Original Soundtrack
+-     Rail Route - Soundtrack and Music Player
+-     Paradise Killer: Art of Paradise
+-     They Always Run Original Soundtrack
+-     Song of Farca Original Soundtrack
+-     Sovereign Syndicate Soundtrack
+-     Sovereign Syndicate Digital Artbook
+-     A Night at the Watermill – Artbook
+-     A Night at the Watermill – Soundtrack
+-     Powers in the Basement Extended Soundtrack
+-     Achilles: Legends Untold - Soundtrack
+-     Realms of Arkania: Star Trail - Digital Deluxe Content
+-     BOOK OF HOURS: Original Soundtrack
+-     Perfect Tides Original Game Soundtrack
+-     Against the Storm Supporter Pack
+-     Seed of the Dead: Charm Song
+-     Seed of the Dead: Charm Song Vocal Album
+-     Seed of the Dead: Sweet Home Theme Songs
+-     BallisticNG - Soundtrack
+-     The Gap - Soundtrack
+-     The Last Show of Mr. Chardish Soundtrack
+-     DROS Soundtrack
