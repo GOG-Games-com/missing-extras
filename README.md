@@ -1,3 +1,6 @@
+- MeteoHeroes Soundtrack
+- Broken Roads Soundtrack
+- Womanizer - Soundtrack
 - First Cut: Samurai Duel Soundtrack
 - To Be A King Volume 2 - Official Guide
 - I Was a Teenage Exocolonist Soundtrack and Artbook
