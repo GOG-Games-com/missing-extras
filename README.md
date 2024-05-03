@@ -12,7 +12,6 @@
 - Tin Hearts Double A-Side 
 - Tin Hearts Soundtrack 
 - The Sinking City Artbook & OST 
-- Between Horizons Soundtrack 
 - Outcast - A New Beginning Soundtrack
 - Frontier Hunter: Soundtrack
 - Craftomation 101 Art Pack
