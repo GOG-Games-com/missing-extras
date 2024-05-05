@@ -1,6 +1,3 @@
-- Otherwar - Studio Secrets
-- Otherwar - Chronicles of Creation
-- Otherwar - Crafting Compendium
 - MeteoHeroes Soundtrack
 - Broken Roads Soundtrack
 - Womanizer - Soundtrack
