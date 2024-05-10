@@ -1,3 +1,5 @@
+- Cryptmaster Soundtrack
+- Cryptmaster Artbook
 - MeteoHeroes Soundtrack
 - Broken Roads Soundtrack
 - Womanizer - Soundtrack
