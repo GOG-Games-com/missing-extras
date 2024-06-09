@@ -1,3 +1,7 @@
+- Summer's Gone - Lover's Delight Wallpapers
+- Summer's Gone - The Book Club - Wallpapers
+- 2064: Read Only Memories - Sights and Sounds of Neo-SF
+- The House of Da Vinci 3 Soundtrack
 - Cryptmaster Soundtrack
 - Cryptmaster Artbook
 - MeteoHeroes Soundtrack
@@ -18,7 +22,6 @@
 - VIDEOVERSE Original Soundtrack
 - Soundtrack for Secrets of Grindea
 - Roboplant Soundtrack
-- Brothers: A Tale of Two Sons Remake Original Soundtrack 
 - Rail Route - Soundtrack and Music Player 
 - Paradise Killer: Art of Paradise
 - They Always Run Original Soundtrack
@@ -31,7 +34,6 @@
 - Achilles: Legends Untold - Soundtrack 
 - Realms of Arkania: Star Trail - Digital Deluxe Content 
 - BOOK OF HOURS: Original Soundtrack 
-- Perfect Tides Original Game Soundtrack 
 - Against the Storm Supporter Pack 
 - Seed of the Dead: Charm Song
 - Seed of the Dead: Charm Song Vocal Album
