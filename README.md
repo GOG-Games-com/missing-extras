@@ -1,3 +1,9 @@
+- X4: Timelines Soundtrack
+- Quilts and Cats of Calico Soundtrack
+- The I of the Dragon Digital Deluxe DLC
+- The I of the Dragon Extended Soundtrack
+- Tails of Iron - Artbook
+- Tails of Iron - Soundtrack
 - Summer's Gone - Lover's Delight Wallpapers
 - Summer's Gone - The Book Club - Wallpapers
 - 2064: Read Only Memories - Sights and Sounds of Neo-SF
