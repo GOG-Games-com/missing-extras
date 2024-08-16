@@ -1,7 +1,6 @@
-- X4: Timelines Soundtrack
-- Quilts and Cats of Calico Soundtrack
-- The I of the Dragon Digital Deluxe DLC
-- The I of the Dragon Extended Soundtrack
+- Skelethrone: The Chronicles of Ericona - Soundtrack (FLAC)
+- Hello Cruel World Soundtrack
+- Ctrl Alt Ego Soundtrack
 - Tails of Iron - Artbook
 - Tails of Iron - Soundtrack
 - Summer's Gone - Lover's Delight Wallpapers
@@ -9,7 +8,6 @@
 - 2064: Read Only Memories - Sights and Sounds of Neo-SF
 - The House of Da Vinci 3 Soundtrack
 - Cryptmaster Soundtrack
-- Cryptmaster Artbook
 - MeteoHeroes Soundtrack
 - Broken Roads Soundtrack
 - Womanizer - Soundtrack
@@ -44,7 +42,6 @@
 - Seed of the Dead: Charm Song
 - Seed of the Dead: Charm Song Vocal Album
 - Seed of the Dead: Sweet Home Theme Songs
-- BallisticNG - Soundtrack 
 - The Gap - Soundtrack 
 - The Last Show of Mr. Chardish Soundtrack
 - DROS Soundtrack 
