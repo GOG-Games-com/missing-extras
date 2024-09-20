@@ -1,4 +1,9 @@
-- Skelethrone: The Chronicles of Ericona - Soundtrack (FLAC)
+- Neckbreak Soundtrack
+- Paper Ghost Stories: Third Eye Open Soundtrack
+- Exophobia Soundtrack
+- Railway Empire - Original Soundtrack
+- Gori: Cuddly Carnage - Artbook
+- Gori: Cuddly Carnage Soundtrack
 - Hello Cruel World Soundtrack
 - Ctrl Alt Ego Soundtrack
 - Tails of Iron - Artbook
