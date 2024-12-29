@@ -1,3 +1,5 @@
+- The Excavation of Hob's Barrow - Official Soundtrack
+- The Excavation of Hob's Barrow - Art Book 
 - Slay the Princess - Supporters Pack
 - Exophobia Soundtrack
 - Hello Cruel World Soundtrack
