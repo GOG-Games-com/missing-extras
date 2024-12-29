@@ -1,8 +1,6 @@
 - Slay the Princess - Supporters Pack
 - Exophobia Soundtrack
 - Hello Cruel World Soundtrack
-- Summer's Gone - Lover's Delight Wallpapers
-- Summer's Gone - The Book Club - Wallpapers
 - 2064: Read Only Memories - Sights and Sounds of Neo-SF
 - The House of Da Vinci 3 Soundtrack
 - Cryptmaster Soundtrack
