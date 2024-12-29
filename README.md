@@ -1,13 +1,6 @@
-- Neckbreak Soundtrack
-- Paper Ghost Stories: Third Eye Open Soundtrack
+- Slay the Princess - Supporters Pack
 - Exophobia Soundtrack
-- Railway Empire - Original Soundtrack
-- Gori: Cuddly Carnage - Artbook
-- Gori: Cuddly Carnage Soundtrack
 - Hello Cruel World Soundtrack
-- Ctrl Alt Ego Soundtrack
-- Tails of Iron - Artbook
-- Tails of Iron - Soundtrack
 - Summer's Gone - Lover's Delight Wallpapers
 - Summer's Gone - The Book Club - Wallpapers
 - 2064: Read Only Memories - Sights and Sounds of Neo-SF
