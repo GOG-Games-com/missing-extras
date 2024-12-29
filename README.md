@@ -1,7 +1,6 @@
 - Slay the Princess - Supporters Pack
 - Exophobia Soundtrack
 - Hello Cruel World Soundtrack
-- 2064: Read Only Memories - Sights and Sounds of Neo-SF
 - The House of Da Vinci 3 Soundtrack
 - Cryptmaster Soundtrack
 - MeteoHeroes Soundtrack
